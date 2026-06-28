@@ -1,4 +1,4 @@
-# 
+# Gratuito Adobe Photoshop herramientas para Mac OS | Último Adobe Photoshop herramientas para PC Windows. Con gestión de capas y kit de marca — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
